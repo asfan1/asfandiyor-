@@ -1,0 +1,2 @@
+# asfandiyor-
+Tóraqulov 
